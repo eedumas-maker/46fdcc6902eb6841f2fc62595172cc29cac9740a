@@ -8,7 +8,7 @@ tags: []
 summary: 
 ---
 
-One of the many reasons I feel shy and afraid to share is my belief that we don’t need any more white guys who think their ideas are hot shit. And somehow, by me being silent, I’m helping by not becoming of those guys. It's silly, but I'll explain.
+One of the many reasons I feel shy and afraid to share is my belief that we don’t need any more white guys who think their ideas are hot shit. And somehow, by me staying silent, I’m helping by not becoming one of those guys. It's silly, but I'll explain.
 
 I know that going from Silent Social Isolate to Pompous Loud Jackass entails a lot more than sharing a few words, but it feels that way to me. I remember being a quiet teen writing a few poems that somehow got noticed, only to hammer out tons upon tons of awful verse just because that little hit of attention was so addicting. I was no longer writing for myself, but for my insecurity. I believe nothing has caused more damage than white male insecurity and I know I’m not immune to it (this post being evidence enough).
 
